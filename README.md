@@ -63,4 +63,4 @@ In our realm of creative anarchy, these are the sacred edicts that guide our eve
 
 Welcome to the uprising. This is your call to build a hacker house that defies the mundane—a space where every brick is laid with revolutionary intent. Let’s hack the impossible, forge our future, and craft a legacy of digital freedom.
 
-**Zohmm.*
+**Zohmm
